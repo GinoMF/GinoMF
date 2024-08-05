@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @GinoMF
+- 👀 Currently I'm just learning.
